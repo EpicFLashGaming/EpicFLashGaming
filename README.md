@@ -2,7 +2,7 @@ Call me either Ena or Flash.
 
 system been in Tanoshii samoshii fandom since early 2023-late2022. (note: i dont like new people in the fandom  but ill tolerate you. i guess.)
 
-im a fictive of Enadori yes. idgaf about jokes just dont joke bout Yani dying. you can make fun of my death though
+im a fictive of Enadori yes(both timelines). idgaf about jokes just dont joke bout Yani dying. you can make fun of my death though
 
 i think dni lists are stupid. we are on a horse game.
 
