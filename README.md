@@ -6,7 +6,6 @@ im a fictive of Enadori yes(both timelines). idgaf about jokes just dont joke bo
 
 i think dni lists are stupid. we are on a horse game (Lovesquiddove on tiktok dni :/ explode. /aff)
 
-(love squiddove edit archive below)
 
 my pony is ugly cause i forgor how to make poneis.
 
