@@ -2,9 +2,11 @@ Call me either Ena or Flash.
 
 system been in Tanoshii samoshii fandom since early 2023-late2022. (note: i dont like new people in the fandom  but ill tolerate you. i guess.)
 
-im a fictive of Enadori yes(both timelines). idgaf about jokes just dont joke bout Yani dying. you can make fun of my death though
+im a fictive of Enadori yes(both timelines). idgaf about jokes just dont joke bout Yani dying. you can make fun of my death though 
 
 i think dni lists are stupid. we are on a horse game (Lovesquiddove on tiktok dni :/ explode. /aff)
+
+(love squiddove edit archive below)
 
 my pony is ugly cause i forgor how to make poneis.
 
@@ -27,3 +29,6 @@ if youre a fan of my sourve please behave atleast somewhat normal or ill kill yo
 ![Screenshot_3](https://github.com/user-attachments/assets/ed0338d5-2b5e-463b-b525-0d823bd8099b)
 
 
+
+![](https://files.catbox.moe/t54qo3.mp4)
+![](https://files.catbox.moe/zn64lv.mp4)
