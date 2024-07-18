@@ -13,3 +13,6 @@ we speak english, polish, and limited japanesse.
 if youre a fan of my sourve please behave atleast somewhat normal or ill kill you there are few people i dont like on a personal level here but i cant be a hater cause Jack will  assasinate me.
 
 (note: Yaniena Canon we made out in grizzco locker room.)
+
+
+**headmate note: if he starts having a violent outburts again just ignore him its been a year and he still struggles with source seperation**
