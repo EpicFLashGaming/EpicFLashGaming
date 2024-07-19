@@ -1,7 +1,9 @@
 Call me either Ena or Flash. 
 
 
-I'm not a proshipper and idk from where the rumour came from
+I'm not a proshipper and idk from where the rumour came from. If yall are reading this atleast let me explain myself. I'm confused tf yall talking about. 
+
+
 system been in Tanoshii samoshii fandom since early 2023-late2022. (note: i dont like new people in the fandom  but ill tolerate you. i guess.)
 
 im a fictive of Enadori yes(both timelines). idgaf about jokes. you can make fun of my death 
