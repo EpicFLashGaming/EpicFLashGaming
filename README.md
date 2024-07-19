@@ -2,6 +2,9 @@ Call me either Ena or Flash.
 
 (I'm very petty naturally of course I will try to defend myself and my boyfriend) 
 
+I have somnophobia (not collective. Just me.) so this is why I am on pt 24/7 
+
+
 I'm not a proshipper and idk from where the rumour came from. If yall are reading this atleast let me explain myself. I'm confused tf yall talking about. 
 
 
