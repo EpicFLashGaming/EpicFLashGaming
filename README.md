@@ -1,5 +1,6 @@
 Call me either Ena or Flash. 
 
+(I'm very petty naturally of course I will try to defend myself and my boyfriend) 
 
 I'm not a proshipper and idk from where the rumour came from. If yall are reading this atleast let me explain myself. I'm confused tf yall talking about. 
 
