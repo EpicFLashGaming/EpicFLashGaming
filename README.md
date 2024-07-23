@@ -10,6 +10,8 @@ no dni list, if you unironically have one i will assume youre stupid and incapab
 
 i struggle with source seperation **but still treat me like my own person, fictives are not their source**
 
+idc bout c+h its just a bit awkard for me. also i most likely wont reply to small talk. same reason 
+
 ![9640a79c](https://github.com/user-attachments/assets/c1011aea-323f-4272-a38e-31fe82455f81)
 
 
