@@ -12,6 +12,13 @@ i struggle with source seperation **but still treat me like my own person, ficti
 
 idc bout c+h its just a bit awkard for me. also i most likely wont reply to small talk. same reason 
 
+
+
+statuses:
+online: actively looking at Ponytown
+Looking for chat: as the name suggests
+away: quick afk
+Busy: doing something else, pt in background, whisper to interact or i wont see.
 ![9640a79c](https://github.com/user-attachments/assets/c1011aea-323f-4272-a38e-31fe82455f81)
 
 
