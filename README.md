@@ -10,7 +10,9 @@ Im also a selfshipper. i really like spinel. im very normal about spinel. i love
 i have no DNI. we're on horse game just hide ppl.
 
 i am not very talkative if im not around my friends but i apreciate the complements
-statuses:
+
+
+**statuses:**
 online: actively looking at Ponytown
 
 Looking for chat: as the name suggests
