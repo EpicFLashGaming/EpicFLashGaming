@@ -7,6 +7,8 @@ im Apart of a system and im a fictive.
 Im also a selfshipper. i really like spinel. im very normal about spinel. i love spinel. 
 ![obraz](https://github.com/user-attachments/assets/210a8a28-fffc-41a7-a0e9-efc9938be39c)
 
+interacting with me is not reccomended. 
+
 i have no DNI. we're on horse game just hide ppl.
 
 i am not very talkative if im not around my friends but i apreciate the complements
